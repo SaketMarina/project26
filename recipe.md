@@ -1,0 +1,1 @@
+Bake pizza dough in oven, shape it into a pizza, spread the pizza sauce and add cheese
